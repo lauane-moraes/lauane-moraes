@@ -1,0 +1,4 @@
+- 👋 oie.. sou a lauane vitória.
+- 👀 eu estudo no CEVI...
+- 🌱 minhas habilidades..desenhar/cozinhar/matematica.
+- 💞️ pretendo ser uma futura arquiteta..😄 
